@@ -1,4 +1,4 @@
-# Sage 50 Support Number | Sage Technical Support
+# Sage 50 Support Number 
 # +1(833) 561-0071 
 
 Sage 50 Technical Support Number: Your One-Stop Solution for Accounting Software Assistance
